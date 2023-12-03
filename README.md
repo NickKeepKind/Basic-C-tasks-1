@@ -15,6 +15,6 @@
 🌐 **Social Media**:
 
 - **VK:** [vk.com/florrythedark](https://vk.com/florrythedark)
-- **Twitter:** [twitter.com/NickKeepKind](
+- **Twitter:** [twitter.com/NickKeepKind](https://twitter.com/NickKeepKind)
 - **Instagram:** [instagram.com/nickkeepkind/](https://www.instagram.com/nickkeepkind/)
 - **Gmail:** NickKeepKind@gmail.com
